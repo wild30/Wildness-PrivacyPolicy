@@ -1,5 +1,3 @@
-Privacy Policy
-
 This privacy policy is effective as at 7.1.2017.
 
 About this policy
